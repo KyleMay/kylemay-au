@@ -1,2 +1,0 @@
-### Kyle May
-Software Engineer
